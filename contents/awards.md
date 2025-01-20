@@ -1,13 +1,7 @@
-- National Scholarship of Graduate Student, 2024.
+- Second Prize in the National English Competition for College Students (Category C), 2024.
 
-- First-prize Scholarship of CUMT, 2024.
+- Second - class Scholarship for Outstanding Students at Wuhan University of Science and Technology, 2022-2023.
 
-- First-prize Scholarship of CUMT, 2023.
+-Outstanding League Member, 2022-2023.
 
-- Freshman Scholarship of CUMT, 2022.
-
-- Excellent Graduation Project of Jiangsu Province, 2022.
-
-- First-prize Enterprise Scholarship of CUMT, 2020.
-
-- First-prize Scholarship of CUMT, 2019.
+- Excellence Award in the PS Design Competition at Wuhan University of Science and Technology, 2022-2023.
